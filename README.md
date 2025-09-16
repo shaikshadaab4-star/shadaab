@@ -26,7 +26,7 @@
 ## 📬 Connect with Me  
 - ✉️ Email: *shaikshadaab4@example.com*  
 - 🔗 [GitHub Profile](https://github.com/shaikshadaab4-star)  
-- 💼 [LinkedIn](https://linkedin.com/) (Add your link here)  
+- 💼 [LinkedIn](https://linkedin.com/) (https://www.linkedin.com/in/shaik-shadab-ab9b65303?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 
 ---
 
